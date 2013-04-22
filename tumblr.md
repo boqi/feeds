@@ -12,5 +12,15 @@ http://tits-rus.tumblr.com/rss
 
 http://collectingsex.tumblr.com/rss
 
-http://mondotopless.tumblr.com/rss
+http://inallherglory.tumblr.com/rss
+
+http://stunningsexkitten.tumblr.com/rss
+
+http://temptingbliss.tumblr.com/rss
+
+http://sweetsexyasianbabes.tumblr.com/rss
+
+http://dirtcase.tumblr.com/rss
+
+http://goukan.tumblr.com/rss
 
