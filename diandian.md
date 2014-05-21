@@ -2,11 +2,7 @@ Feeds
 -----
 
 
-http://i-xingan.diandian.com/rss
-
 http://meinvqiang.diandian.com/rss
-
-http://aaamn.diandian.com/rss
 
 http://womens.diandian.com/rss
 
