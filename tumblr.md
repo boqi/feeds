@@ -2,8 +2,6 @@ http://ribenav.net/rss
 
 http://tokyohotgirls.tumblr.com/rss
 
-http://blowmekissmekillme.tumblr.com/rss
-
 http://myintimatedesires.tumblr.com/rss
 
 http://redhotwomen.tumblr.com/rss
@@ -17,8 +15,6 @@ http://inallherglory.tumblr.com/rss
 http://stunningsexkitten.tumblr.com/rss
 
 http://temptingbliss.tumblr.com/rss
-
-http://sweetsexyasianbabes.tumblr.com/rss
 
 http://dirtcase.tumblr.com/rss
 
@@ -57,8 +53,6 @@ http://swanswanhummingbird.tumblr.com/rss
 http://thatswhaticallsexy.tumblr.com/rss
 
 http://xixpix.tumblr.com/rss
-
-http://mumisthatyou.tumblr.com/rss
 
 http://happylovemachine.tumblr.com/rss
 
