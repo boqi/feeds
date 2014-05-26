@@ -1,6 +1,16 @@
 Feeds
 -----
 
+http://hentai.2cykr.com/rss
+http://nvse.org/rss
+http://27419450.diandian.com/rss
+http://www.fotofeel.com/rss
+http://ailoveu.diandian.com/rss
+http://jiuoo.diandian.com/rss
+http://hotnewmagazine.diandian.com/rss
+http://eeeeeyy.diandian.com/rss
+
+
 http://rainbowphotostudio.diandian.com/rss
 http://647lsher.diandian.com/rss
 http://tgoddess.diandian.com/rss
