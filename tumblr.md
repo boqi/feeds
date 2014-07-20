@@ -22,11 +22,7 @@ http://dirtcase.tumblr.com/rss
 
 http://goukan.tumblr.com/rss
 
-http://alotofadultgifs.tumblr.com/rss
-
 http://classysexypixs.tumblr.com/rss
-
-http://www.sex-doktoru.com/rss
 
 http://corta-pra-18.tumblr.com/rss
 
@@ -36,19 +32,13 @@ http://wayayaya.tumblr.com/rss
 
 http://thetracij.tumblr.com/rss
 
-http://ilovesexyblowjobs.tumblr.com/rss
-
 http://bello2love.tumblr.com/rss
 
 http://i-really-love-women.tumblr.com/rss
 
-http://alotofadultgifs.tumblr.com/rss
-
 http://softposes-eyecandy.tumblr.com/rss
 
 http://eroticblog.tumblr.com/rss
-
-http://corta-pra-18.tumblr.com/rss
 
 http://swanswanhummingbird.tumblr.com/rss
 
@@ -57,8 +47,4 @@ http://thatswhaticallsexy.tumblr.com/rss
 http://xixpix.tumblr.com/rss
 
 http://happylovemachine.tumblr.com/rss
-
-http://thenaturalslut.tumblr.com/rss
-
-
 
