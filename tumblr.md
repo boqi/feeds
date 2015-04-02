@@ -1,3 +1,5 @@
+http://iluvjav.tumblr.com/rss
+
 http://cleveguy77.tumblr.com/rss
 
 http://ribenav.net/rss
